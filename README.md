@@ -1,0 +1,2 @@
+# Guardianes-del-horno.-Equilibrios-que-alimentan-la-historia.
+eXeLearning como producto final realizado por Manuel Tenor Tierno, sobre una SdA que tiene por título "Diseño y representación de composiciones motrices colectivas de acrosport, inspiradas en la evolución histórica y el proceso artesanal de la tradición panadera de Alcalá de Gra". B2 / CDD, guiado por J.J.Y.C. desde el CEP Mairena del Alcor.
